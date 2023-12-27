@@ -10,6 +10,7 @@
 
 ## 😁 Who Am I?
 <br>
+
 - I'm a man who loves teamwork and loves serving as a leader of a group 🗣️
 - I have a lot of enthusiasm on a vision that is clear and that excites me 🔥
 - I get the job done with the money on the line 😎
